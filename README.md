@@ -1,4 +1,4 @@
-- 👋 no one is alowode to taunt . 
+they fhsydigjxBfhbxgdkgkyifggcjvkfgzgxncmdfFucjvvzhcmvhxjdjgxhcjgjxvcncnc😢💸🍑😂- 👋 no one is alowode to taunt . 
 -github phone ddone work on people
 � no gay guys allowed
 - 🌱 I’m currently learning ...
